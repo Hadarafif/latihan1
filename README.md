@@ -1,0 +1,6 @@
+# latihan1
+sadniuhadsihadsiuhashohsudaobncsouasbcuosacboucasnsac
+ascniboib#nboadwbodiawbnoddwmdw
+
+#jdiowjdiwndwndw
+ndwndkwndwnkldwdw
